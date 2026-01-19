@@ -22,5 +22,27 @@ kin , doubles pls dni ><"
 ![IMG_1742](https://github.com/user-attachments/assets/2b16cefb-5201-42ec-a610-8af7900a6eb3)
 
 
+
+![IMG_6621](https://github.com/user-attachments/assets/b4fd151b-81e3-4deb-bc96-7ea9c995ee78)
+<img width="99" height="57" alt="IMG_6620" src="https://github.com/user-attachments/assets/f5655c6c-9bc2-4c17-892b-cc1cef301690" />
+<img width="99" height="56" alt="IMG_6619" src="https://github.com/user-attachments/assets/5ccf8d48-d62e-4c3e-95d9-1db3dfb71fe9" />
+<img width="99" height="56" alt="IMG_6217" src="https://github.com/user-attachments/assets/97fb2eb9-abf7-415a-a9e7-c78c93aee285" />
+![IMG_6214](https://github.com/user-attachments/assets/95458d62-f08a-4d6c-85c2-4fd19504e7e0)
+![IMG_4572](https://github.com/user-attachments/assets/dc419c8c-c3a7-4dc5-a33f-03961f3b121c)
+![IMG_4941](https://github.com/user-attachments/assets/a33b4f12-8373-4356-a2ba-f8f090717fb3)
+<img width="99" height="56" alt="Untitled1414_20251130211904" src="https://github.com/user-attachments/assets/50aa4db6-f359-4790-9267-8d9a0175b83c" />
+<img width="99" height="56" alt="Untitled1414_20251130211740" src="https://github.com/user-attachments/assets/69881c55-68f9-4041-8678-901f8b1d5c65" />
+<img width="99" height="56" alt="IMG_6800" src="https://github.com/user-attachments/assets/15b8c6d6-15b4-439e-9175-f11ecfe26c98" />
+![IMG_6127](https://github.com/user-attachments/assets/0c2b8ea7-1479-4847-972c-424cfb3864ba)
+<img width="99" height="56" alt="IMG_4673" src="https://github.com/user-attachments/assets/ec27a421-ed50-4d61-83c7-dd293326ecae" />
+![IMG_4527](https://github.com/user-attachments/assets/1af5f67d-2007-4ee9-93ec-6ae7c6a84039)
+<img width="99" height="56" alt="IMG_6126" src="https://github.com/user-attachments/assets/0371bd3d-7585-4646-87e7-9bc07ce0030a" />
+<img width="99" height="56" alt="cRnsqHR" src="https://github.com/user-attachments/assets/6301ebac-86b5-4474-b081-a30a04b7c54a" />
+<img width="99" height="56" alt="IMG_7011" src="https://github.com/user-attachments/assets/3770a3a8-e26d-480d-ac22-fa58e07bc535" />
+<img width="99" height="55" alt="IMG_5483" src="https://github.com/user-attachments/assets/9df06a8f-358d-4619-a031-ffe8e2100b1b" />
+![IMG_5501](https://github.com/user-attachments/assets/5d7463a1-d761-4d37-832f-0befab633824)
+
+
+
 ![IMG_6687](https://github.com/user-attachments/assets/6be78d47-60da-459c-a304-5fdf52657aa4)
 
